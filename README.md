@@ -7,7 +7,7 @@ THANK YOU [pt-walk-of-fame](https://github.com/pt-walk-of-fame) !!!!!!!!!!!
   <p align="center">
  ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ he / hymn⠀ ᶻ 𝗓 𐰁
 <p align="center">
-<img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> astro⠀ fictkin ⠀  fictflect ⠀  copinglink⠀ ꣼
+<img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> astro⠀ fictkin ⠀  fictflect ⠀  copingkin⠀ ꣼
 <p align="center">
 ↓ ⠀sign ata and strapg ⠀  <img width="25" src="https://i.imgur.com/P7DdYGv.gif">
 
