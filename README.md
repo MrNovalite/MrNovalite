@@ -1,6 +1,8 @@
-<p align="center"
+<p align="center">
 <a href="https://github.com/pt-walk-of-fame">
 <img wdith="150" src="https://www.image2url.com/r2/default/images/1784209590016-05b878ac-3792-4e0f-888f-8031a64970e6.png">
+<a href="https://github.com/pt-hall-of-media">
+<img wdith="150" src="https://i.imgur.com/0l41zX4.png">
 
 <p align="center">
  <img width="175" src="https://i.imgur.com/P9VPTzD.png">
