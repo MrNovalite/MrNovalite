@@ -3,6 +3,8 @@
 <img wdith="150" src="https://www.image2url.com/r2/default/images/1784209590016-05b878ac-3792-4e0f-888f-8031a64970e6.png">
 <a href="https://github.com/pt-hall-of-media">
 <img wdith="150" src="https://i.imgur.com/0l41zX4.png">
+<a href="https://github.com/pt-fashion">
+<img width="250" src="https://i.imgur.com/Eg40uCI.png">
 
 <p align="center">
  <img width="175" src="https://i.imgur.com/P9VPTzD.png">
