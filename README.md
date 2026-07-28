@@ -1,5 +1,5 @@
-THANK YOU [pt-walk-of-fame](https://github.com/pt-walk-of-fame) !!!!!!!!!!!
-
+<p align="center"
+<a href="https://github.com/pt-walk-of-fame">
 <img wdith="150" src="https://www.image2url.com/r2/default/images/1784209590016-05b878ac-3792-4e0f-888f-8031a64970e6.png">
 
 <p align="center">
