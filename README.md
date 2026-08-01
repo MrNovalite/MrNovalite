@@ -36,5 +36,8 @@
 <a href="https://github.com/pt-fashion">
 <img width="250" src="https://i.imgur.com/Eg40uCI.png">
 <p align="center">
- 
+ <a href="https://github.com/pt-of-awesomeness">
+<img width="430" height="34" alt="image" src="https://github.com/user-attachments/assets/c9b1c1ae-d326-44e7-9654-1ff28392de38" />
+
+ <p align="center">
 <img wdith="150" src="https://i.imgur.com/LA4IiMs.png">
