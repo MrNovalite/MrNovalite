@@ -36,8 +36,13 @@
 <a href="https://github.com/pt-fashion">
 <img width="250" src="https://i.imgur.com/Eg40uCI.png">
 <p align="center">
- <a href="https://github.com/pt-of-awesomeness">
+<a href="https://github.com/pt-of-awesomeness">
 <img width="430" height="34" alt="image" src="https://github.com/user-attachments/assets/c9b1c1ae-d326-44e7-9654-1ff28392de38" />
+<a href="https://github.com/ponychievements">
+<img width="278" height="34" alt="image" src="https://github.com/user-attachments/assets/096bd3f8-aad4-4794-892d-f5dc2a037d29" />
+<a href="https://github.com/ponychievements">
+<img wdith="937" src="https://i.imgur.com/fJQYU4x.png" />
+
 
  <p align="center">
 <img wdith="150" src="https://i.imgur.com/LA4IiMs.png">
