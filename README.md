@@ -42,6 +42,9 @@
 <img width="278" height="34" alt="image" src="https://github.com/user-attachments/assets/096bd3f8-aad4-4794-892d-f5dc2a037d29" />
 <a href="https://github.com/ponychievements">
 <img wdith="937" src="https://i.imgur.com/fJQYU4x.png" />
+<a href="https://github.com/ponytown-nominations">
+<img width="354" height="34" alt="image" src="https://github.com/user-attachments/assets/5ecd8bdf-7219-40b4-8b5a-6f35e1db4f30" />
+
 
 
  <p align="center">
