@@ -1,7 +1,11 @@
  .  <p align="center">
    ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%235D64FF&countColor=%23D7C9F1&style=plastic&labelStyle=lower)
 
- <p align="center">
+<p align="center">
+ <a href="https://github.com/pt-friendships">
+<img width="376" height="34" alt="image" src="https://github.com/user-attachments/assets/573fd910-bcd8-49b6-ad2e-cc4ade68db0b" />
+
+<p align="center">
  <img wdith="49" src="https://i.imgur.com/IzEl0c2.png">
 
 <p align="center">
