@@ -4,6 +4,9 @@
 <p align="center">
  <a href="https://github.com/pt-friendships">
 <img width="376" height="34" alt="image" src="https://github.com/user-attachments/assets/573fd910-bcd8-49b6-ad2e-cc4ade68db0b" />
+   <a href="https://github.com/pt-friendships">
+<img width="529" height="35" alt="image" src="https://github.com/user-attachments/assets/b891d11f-0f17-4178-bfbc-fb93a01bfbe2" />
+
 
 <p align="center">
  <img wdith="49" src="https://i.imgur.com/IzEl0c2.png">
