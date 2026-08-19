@@ -12,7 +12,7 @@
  <img wdith="49" src="https://i.imgur.com/IzEl0c2.png">
 
 <p align="center">
- <img width="245" src="https://i.imgur.com/P9VPTzD.png" align="left">
+<img width="245" src="https://i.imgur.com/P9VPTzD.png" align="left">
 
   <p align="center">
  <img width="95" src="https://media.tenor.com/rkAEqes681cAAAAj/purple-heart-purple.gif">
@@ -36,23 +36,14 @@
 <br clear="left"/>
 
  <p align="center">
-<a href="https://github.com/pt-walk-of-fame">
-<img wdith="150" src="https://www.image2url.com/r2/default/images/1784209590016-05b878ac-3792-4e0f-888f-8031a64970e6.png">
-<a href="https://github.com/pt-hall-of-media">
-<img wdith="150" src="https://i.imgur.com/0l41zX4.png">
-<a href="https://github.com/pt-fashion">
-<img width="250" src="https://i.imgur.com/Eg40uCI.png">
-<p align="center">
-<a href="https://github.com/pt-of-awesomeness">
-<img width="430" height="34" alt="image" src="https://github.com/user-attachments/assets/c9b1c1ae-d326-44e7-9654-1ff28392de38" />
-<a href="https://github.com/ponychievements">
-<img width="278" height="34" alt="image" src="https://github.com/user-attachments/assets/096bd3f8-aad4-4794-892d-f5dc2a037d29" />
-<a href="https://github.com/ponychievements">
-<img wdith="937" src="https://i.imgur.com/fJQYU4x.png" />
-<a href="https://github.com/ponytown-nominations">
-<img width="354" height="34" alt="image" src="https://github.com/user-attachments/assets/5ecd8bdf-7219-40b4-8b5a-6f35e1db4f30" />
-
-
+ ᵗʸ ᵃʷᵃʳᵈ ᵃᶜᶜˢ !!
+  
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀[ᵖᵗ ⁻ ʷᵃˡᵏ ⁻ ᵒᶠ ⁻ ᶠᵃᵐᵉ](https://github.com/pt-walk-of-fame)
+[ᵖᵗ ⁻ ʰᵃˡˡ⁻ ᵒᶠ ⁻ ᵐᵉᵈⁱᵃ](https://github.com/pt-hall-of-media)
+[ᵖᵗ ⁻ ᶠᵃˢʰⁱᵒⁿ](https://github.com/pt-fashion)
+[ᵖᵗ ⁻ ᵒᶠ ⁻ ᵃʷᵉˢᵒᵐᵉⁿᵉˢˢ](https://github.com/pt-of-awesomeness)
+[ᵖᵒⁿʸᶜʰⁱᵉᵛᵉᵐᵉⁿᵗˢ](https://github.com/ponychievements)
+[ᵖᵒⁿʸᵗᵒʷⁿ ⁻ ⁿᵒᵐⁱⁿᵃᵗⁱᵒⁿˢ](https://github.com/ponytown-nominations)
 
  <p align="center">
 <img wdith="150" src="https://i.imgur.com/LA4IiMs.png">
