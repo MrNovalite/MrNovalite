@@ -26,7 +26,7 @@
 <p align="center">
  ⠀ ꒰⠀ <a href="https://astrozgalaxy.atabook.org/">
  <img width="135" src="https://i.imgur.com/VPtKUbf.png"/>
-</a> ⠀  <img width="135" src="https://i.pinimg.com/originals/f3/e6/9a/f3e69ae7e1847f20398487a2142f3c0f.gif"/> ⠀ <a href="
+</a> ⠀  <img width="135" src="https://i.pinimg.com/originals/f3/e6/9a/f3e69ae7e1847f20398487a2142f3c0f.gif"/> ⠀ <a href="https://astrozdreamz.straw.page/"
  <img width="135" src="https://i.imgur.com/plD24fW.png"/>
 </a> ꒱
   
