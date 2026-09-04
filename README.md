@@ -4,8 +4,11 @@
 <p align="center">
  <a href="https://github.com/pt-friendships">
 <img width="376" height="34" alt="image" src="https://github.com/user-attachments/assets/573fd910-bcd8-49b6-ad2e-cc4ade68db0b" />
-   <a href="https://github.com/pt-friendships">
+<a href="https://github.com/Ponytowns-ships">
+<img width="559" height="41" alt="image" src="https://github.com/user-attachments/assets/ed283b1d-815d-49f2-9b6a-9f7560093ce0" />
+  <a href="https://github.com/pt-friendships">
 <img width="529" height="35" alt="image" src="https://github.com/user-attachments/assets/b891d11f-0f17-4178-bfbc-fb93a01bfbe2" />
+
 
 
 <p align="center">
