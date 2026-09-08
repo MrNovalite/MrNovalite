@@ -9,13 +9,13 @@
   <a href="https://github.com/pt-friendships">
 <img width="529" height="35" alt="image" src="https://github.com/user-attachments/assets/b891d11f-0f17-4178-bfbc-fb93a01bfbe2" />
 
-
+---
 
 <p align="center">
  <img wdith="49" src="https://i.imgur.com/IzEl0c2.png">
 
 <p align="center">
-<img width="245" src="https://i.imgur.com/P9VPTzD.png" align="left">
+<img width="350" src="https://i.imgur.com/wuuZrb7.png" align="left">
 
   <p align="center">
  <img width="95" src="https://media.tenor.com/rkAEqes681cAAAAj/purple-heart-purple.gif">
@@ -50,3 +50,5 @@
 
  <p align="center">
 <img wdith="150" src="https://i.imgur.com/LA4IiMs.png">
+
+---
