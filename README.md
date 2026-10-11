@@ -20,7 +20,7 @@
   <p align="center">
  <img width="95" src="https://media.tenor.com/rkAEqes681cAAAAj/purple-heart-purple.gif">
   <p align="center">
- ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ he / hymn⠀ ᶻ 𝗓 𐰁
+ ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ hy / him / star⠀ ᶻ 𝗓 𐰁
 <p align="center">
 <img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> astro⠀ fictkin ⠀  fictflect ⠀  copingkin⠀ ꣼
 <p align="center">
