@@ -2,7 +2,7 @@
  ⠀ ⠀<p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%235D64FF&countColor=%23D7C9F1&style=plastic&labelStyle=lower)
  
 <p align="center">
-<img width="360" src="https://i.imgur.com/wuuZrb7.png" align="left">
+<img width="350" src="https://i.imgur.com/wuuZrb7.png" align="left">
 
 <table><tr><td>
 
