@@ -1,4 +1,6 @@
+I will no longer be at Spawn in Safe Server 1 for the time being . All of what has happened has been handled poorly and I do not wish to have part it in anymore . I love all my friends , but please do not associate me with drama they have been in any longer . You can still associate me with Fictionkilled , that is something I do not mind . It is a friend group I am part of and that I cherish very deeply . However , do not attempt to contact me regarding drama unless it is to ask questions ( check my ata ) . 
 
+This is my final statement on this . Thank you for understanding .
  ⠀ ⠀<p align="center"> ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fastrozgalaxy&label=dreams%20%20given%20%20.%20.%20.&labelColor=%235D64FF&countColor=%23D7C9F1&style=plastic&labelStyle=lower)
  
 <p align="center">
