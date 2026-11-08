@@ -11,7 +11,7 @@
  <img width="90" src="https://64.media.tumblr.com/8b927e39013dec717a5a61e560f93efd/daae1015ef816d29-0b/s500x750/f6c2ce47f786c3b15ec953d1a01c4ba889a87379.pnj">
   <p align="center">
    
- ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ hy / him / star⠀ ᶻ 𝗓 𐰁
+ ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ hy  ┊  hym  ᶻ 𝗓 𐰁
 <p align="center">
 <img wdith="25" src="https://i.imgur.com/I9nZyUU.gif"> astro⠀ fictkin ⠀  fictflect ⠀  copingkin⠀ ꣼
 <p align="center">
