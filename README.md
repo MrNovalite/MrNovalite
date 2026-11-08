@@ -8,7 +8,7 @@
 <table><tr><td>
 
 <p align="center">
- <img width="95" src="https://64.media.tumblr.com/481d37edc4e6b7c6f19efd7c90701255/4b9558cbd0422d49-11/s75x75_c1/5d9880a1f3b357ec024406262b5bdfe6afb60128.gifv">
+ <img width="90" src="https://64.media.tumblr.com/8b927e39013dec717a5a61e560f93efd/daae1015ef816d29-0b/s500x750/f6c2ce47f786c3b15ec953d1a01c4ba889a87379.pnj">
   <p align="center">
    
  ⑅ . aether or astro⠀ ⏔⏔ ⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif">⠀ 19y⠀  <img width="15" src="https://i.imgur.com/ZISm3uS.gif"> ⠀  ⏔⏔⠀ hy / him / star⠀ ᶻ 𝗓 𐰁
